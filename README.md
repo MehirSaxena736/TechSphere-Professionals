@@ -211,4 +211,4 @@ University of Petroleum and Energy Studies (UPES), Dehradun
 
 GitHub: https://github.com/MehirSaxena736
 
-LinkedIn: *(Add your LinkedIn Profile URL here)*
+LinkedIn: www.linkedin.com/in/mehirs
